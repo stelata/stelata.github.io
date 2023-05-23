@@ -1,1 +1,0 @@
-# stelata.github.io
